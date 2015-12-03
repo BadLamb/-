@@ -12,4 +12,4 @@
 #fuͧͧͧͧdͩͩͩͩdͩͩͩy dͩͩͩuͧͧdͩͩͩͩdͩͩͩͩy
 
 
-get yourself some toothpaste stinky: http://www.powertoothpaste.com?kid=7WC0K
+get yourself some toothpaste stinky: http://www.powertoothpaste.com?kid=7WC0K.
