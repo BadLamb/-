@@ -4,12 +4,9 @@
 
 
 
-#m͚͚͚͚̥̊̊̊o̥͚̊̊̊i͚̥̥̥͚͚͚̊̊s̊̊̊̊̊̊t̥̥̥͚͚͚̥̊̊
+#m͚͚͚͚̥̊̊̊o̥͚̊̊̊i͚̥̥̥͚͚͚̊̊s̊̊̊̊̊̊t̥̥̥͚͚͚̥̊̊ ‮♥
 
 
 
 
 #fuͧͧͧͧdͩͩͩͩdͩͩͩy dͩͩͩuͧͧdͩͩͩͩdͩͩͩͩy
-
-
-get yourself some toothpaste stinky: http://www.powertoothpaste.com?kid=7WC0K.
